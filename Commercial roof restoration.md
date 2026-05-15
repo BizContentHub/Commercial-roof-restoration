@@ -126,8 +126,7 @@ Preparing a commercial roof before winter is one of the smartest ways to protect
 
 Professional roof restoration helps strengthen aging roofing systems, improve drainage, and extend roof lifespan before severe weather arrives. Businesses that invest in preventive roof maintenance often save significant money over time while improving building safety and performance.
 
-To learn more about professional roofing and renovation services, visit [Meadows Construction & Renovation](https://www.meadowsbuilds.com/).
-
+To learn more about professional roofing and renovation services.
 
 ## FAQs
 
